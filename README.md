@@ -1,3 +1,3 @@
 # dia2-remoto
 
-## Mariana Verde
+## Mariana Verde Sabino
